@@ -1,1 +1,1 @@
-# Public-Resource
+# Public Resource
